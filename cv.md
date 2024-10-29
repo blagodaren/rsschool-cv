@@ -81,7 +81,7 @@ _March 2022 – January 2024 (1 year 11 months)_
 
 ---
 
-## 📬 Contact Information
+## 📬 Contact Me
 
 - **Email**: [radik.gainullin.mb@gmail.com](mailto:radik.gainullin.mb@gmail.com)
 - **Telegram**: [@blagodarenya](https://t.me/blagodarenya)
